@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @carolinarebeloo
+- 👀 I’m interested in learning code by myself and also recruiting IT people. DM me
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: carolinarebeloo@hotmail.com or carolina.rebelo@reditpro.com
